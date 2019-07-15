@@ -1,3 +1,5 @@
 Gaiger, Jason. "Hegel's Contested Legacy: Rethinking the Relation between Art History and Philosophy." _The Art Bulletin_ 43.2 (June 2011): 178-194.
 
 Rampley, Matthew. "Art History and the Politics of Empire: Rethinking the Vienna School." _The Art Bulletin_ 41.4 (December 2009): 446-462.
+
+Sears, Elizabeth and Charlotte Schoell-Glass. "An Émigré Art Historian and America: H. W. Janson." _The Art Bulletin_ 45.2 (June 2013): 219-242.
